@@ -76,11 +76,11 @@ Hope to get out of the course:
 
 Project ideas:
 
-**Nicole**:
+**Nicole**:https://github.com/nmazour96
 
-Hope to get out of the course:
+Hope to get out of the course: basic coding skills to better help me understand the programs I will be working with later in my career. I also hope to gain a different way of thinking that will help me other subjects as well.
 
-Project ideas:
+Project ideas: I have no idea
 
 **Olivia**:
 
